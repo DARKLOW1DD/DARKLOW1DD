@@ -1,2 +1,2 @@
-# Loïc De Deyn a.k.a DARKLOW1DD
+# Loïc De Deyn
 ## Welcome on my Github's profile 👋
